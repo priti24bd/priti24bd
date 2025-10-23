@@ -9,9 +9,9 @@
 
 I’m a student passionate about **learning and creating**. I love exploring **engineering skills** while also being interested in **medicine and healthcare innovation**.  
 
-I’ve participated in **climate project competitions** and was honored to receive funding from **GAIN**. I also worked as a **Project Officer** for **Vector-Borne Disease (VBD)** initiatives.  
+I’ve participated in **climate project competitions** and was honored to receive funding from **GAIN**. I also worked as a **Project Officer** for **Volunteer For Bangladesh (VBD)** initiatives.  
 
-I enjoy **building projects, solving problems**, and collaborating with others who want to make a positive impact.  
+I enjoy **building projects, solving real world problems**, and collaborating with others who want to make a positive impact.  
 
 ---
 
