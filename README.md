@@ -7,11 +7,11 @@
 
 # Hi, I'm Priti 👋
 
-I’m a student passionate about **learning and creating**. I love exploring **engineering skills** while also being interested in **medicine and healthcare innovation**.  
+I changed the food habits of 25 families directly making their meals scientific, appropriate low cost and easy to find local foods full of nutrition. I showed them that nutrition is not for city and rich people. I trained 5000+ youths aged 16-28 on gender equity, civic education, democracy, advocacy and leadership. My journey of leadership began in childhood but the realization came after joining VBD. The journey of self‑learning began with gap years. That is what I feel proud of because I truly believe that nothing matters if you do not have a self‑learning mindset.
 
-I’ve participated in **climate project competitions** and was honored to receive funding from **GAIN**. I also worked as a **Project Officer** for **Volunteer For Bangladesh (VBD)** initiatives.  
+The skills I am very good at include using Canva for posters, presentations and documentation; Microsoft Office for Excel and PowerPoint; Google Docs, Forms and Sheets; Notion for building a website; and clear communication through presentation, public speaking and conflict resolution.
 
-I enjoy **building projects, solving real world problems**, and collaborating with others who want to make a positive impact.  
+I have worked with organizations for 2+ years as a leader, trainer and change maker. Now I lead NOVA Nourish Foundation as the Founder and Executive Director, where I guide volunteers across 3 continents and more than 15+  countries. Together we work to solve malnutrition through research, innovation and by showing the world that nutrition is, for everyone.
 
 ---
 
